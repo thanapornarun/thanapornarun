@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Contact Me ! •ᴗ•
+- Email : thanapornlim45@gmil.com
 <!--
 **thanapornarun/thanapornarun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
